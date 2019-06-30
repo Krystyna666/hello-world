@@ -2,4 +2,4 @@
 
 Hi!
 
-Krystyna i jej team walczą z kaloriamni!
+Krystyna i jej team walczą z kaloriami!
